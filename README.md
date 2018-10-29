@@ -1,1 +1,1 @@
-# mtgcampinas.github.io
+# mtgcampinas
